@@ -1,4 +1,3 @@
-# About Me
 ## Hello, Ciao, Coucou!
 
 This is **wang2**, also known as **Elio**. 
