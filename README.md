@@ -1,6 +1,6 @@
 ### Hello, Ciao, Coucou!
 
-This is **wang2**, also known as **Elio**. 
+This is **wang2**. 
 
 I have over **8 years of experience** as a **Product Manager** in the **online advertising** and **e-commerce** industries,
 
