@@ -4,7 +4,7 @@ This is **wang2**.
 
 I have over **8 years of experience** as a **Product Manager** in the **online advertising** and **e-commerce** industries,
 
-and 2 years as a **researcher in concrete and cement structures**, with an unfinished doctorate,
+and a few years as a **researcher in concrete and cement structures**, with an unfinished doctorate,
 
 and so many years of experience in **coffee brewing**, **rock climbing**, and **marathon running**.
 
