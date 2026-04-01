@@ -2,7 +2,7 @@
 
 This is **wang2**. 
 
-I have over **8 years of experience** as a **Product Manager** in the **online advertising** and **e-commerce** industries,
+I have over **10 years of experience** as a **Product Manager** in the **online advertising** and **e-commerce** industries,
 
 and a few years as a **researcher in concrete and cement structures**, with an unfinished doctorate,
 
